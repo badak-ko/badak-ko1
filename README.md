@@ -1,1 +1,0 @@
-# badak-ko1.github.oi
